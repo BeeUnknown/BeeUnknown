@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Deepak Verma.
 - 👀 I’m interested in Programming.
-- 🌱 I’m currently studying in IIITA.
+- 🌱 I’m currently studying at IIITA.
 - 💞️ I'm from Prayagraj UP.
 - 📫 Just come Sangam City to reach me.🙏😎
 
